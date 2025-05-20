@@ -8,7 +8,7 @@
 6.	**Regan (Bigman** – A strong interior player with good footwork and finishing ability. Solid defender and a key presence in the paint.<br>
 7.	**Shandrid Barrack (Bigman)** – A solid floor general with good vision and decision-making. Reliable in clutch moments and can score when needed.
 8. **George Ashley (Bigman)** – A versatile wing player with strong slashing ability. Can defend multiple positions and contribute in transition.
- <br>**Wings & Shooters:**
+ <br>**Shooters:**
 9.	**Byron (Shooter)** – A deadly three-point shooter with a quick release. Spreads the floor and creates spacing for the offense.
 10.	**Derrick (Shooter & Captain)** – A natural leader on the court, excellent shooter with clutch ability. Can score from deep and control the game’s tempo.
 
